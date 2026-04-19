@@ -1,1 +1,1 @@
-Folder contents the project report
+Folder contents the project report and presentation slides
